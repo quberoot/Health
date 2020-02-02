@@ -7,7 +7,7 @@ Notes:
 
 - Dr. Linus Pauling (of the Noble Laurate fame, who was as Phd not MD) worked with  Dr. Robert F. Cathcart on the treatment of cancer with Vitamin C.
 
-- Linus Pauling has written several criticism of the failed Mayo Clinic Study. Overall it appears that his protocol was not correctly followed. Linus Pauling appears to be battling apathy or even hostility. Once cannot win such a battle. A video on the subject can be found [here](https://www.youtube.com/watch?v=ULTDEqWmQNw)
+- Linus Pauling has written several criticism of the failed Mayo Clinic Study. Overall it appears that his protocol was not correctly followed. Linus Pauling appears to be battling apathy or even hostility. Once cannot win such a battle. A video on the subject can be found [here](https://www.youtube.com/watch?v=ULTDEqWmQNw) and [here](https://www.facebook.com/vcfusa/videos/10155762378557953/)
 
 
 
