@@ -10,12 +10,7 @@ The outcomes are significantly better. For example people with pancreatic cancer
 
 <strong>What is wrong with the mainstream approach?</strong>
 
-
-The approach appears to based on several misplaced beliefs:
-- Takes the same approach to treating cancer as that of an infections disease.
-- heroics. (the philosophy on no pain no gain stretched to the level of a dogma). Heroics is often very psychologically satisfying than actually results to most people.
-- Forgetting that Cancer is a systemic disease not a localized problem. (hence there is no focus on diet)
-
+See Health\FairCredibility\Cancer\ReadMeDennisOpinion.md
 
 <strong>Practitioners:</strong>  
 
