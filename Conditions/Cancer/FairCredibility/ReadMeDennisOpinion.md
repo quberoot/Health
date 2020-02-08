@@ -14,4 +14,4 @@ The approach appears to based on several misplaced beliefs:
 - Forgetting that Cancer is a systemic disease not a localized problem. (hence for example there is no focus on diet)
 - An excessive obsession with high tech stuff and convoluted theories which may have a grain of truth in them. The mutation theory and all that. (The underlying philosophy here seems to be that if there is a big problem, the solution has to necessarily complicated).
 
-Note: some cancers do respond well to conventional treatments but they are a rarity. As far as I know they are the lymphomas, ovarian and testicular cancers.
+Note: some cancers do respond well to conventional treatments but they are the exceptions. As far as I know they are the lymphomas, ovarian and testicular cancers.

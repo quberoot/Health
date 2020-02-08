@@ -1,1 +1,0 @@
-Fatigue is a general category which includes MS, Fibromyalgia, Chronic fatigue syndrome, Lyme’s disease etc.
