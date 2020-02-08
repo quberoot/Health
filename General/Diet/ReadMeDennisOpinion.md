@@ -37,9 +37,9 @@ Things I would like the person to be aware of when discussing a diet topic:
   - Have you heard of the expensive tissue hypothesis?
   - What do you know about domestication of plants for food?
   - Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
-- Have you considered, what I call it the allergy/sensitivity spectrum. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
+- Have you considered, what I call the allergy/sensitivity spectrum of foods. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
 
-My allergy/sensitivity spectrum, in the order of increasing sensitivity
+My allergy/sensitivity spectrum of foods, in the order of increasing sensitivity
 -------------------------------------------------------------------------
 - Red ruminant meat [least sensitivity]
 - Eggs
