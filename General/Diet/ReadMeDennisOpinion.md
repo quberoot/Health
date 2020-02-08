@@ -38,6 +38,7 @@ Things I would like the person to be aware of when discussing a diet topic:
   - What do you know about domestication of plants for food?
   - Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
 - Have you considered, what I call it the allergy/sensitivity spectrum. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
+
 My allergy/sensitivity spectrum, in the order of increasing sensitivity
 -------------------------------------------------------------------------
 - Red ruminant meat [least sensitivity]
