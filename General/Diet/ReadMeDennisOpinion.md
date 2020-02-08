@@ -13,7 +13,7 @@ Of the people who respond well to the diet, what are the measures of people who 
 As subjective as it may sound (as opposed to concrete well defined figures like cholesterol or sugar levels)) mention the following:
 - How do they feel? Is it any different than when they were not on the diet.
 - Do they sleep better?
-- Do they have better motions?
+- Do they have better motions? What about GERD, bloating etc. ?
 - Do they have more energy?
 - Do they have more/less visceral fat?
 - Have they gained/lost weight?
@@ -25,7 +25,6 @@ As subjective as it may sound (as opposed to concrete well defined figures like 
 
 Things I would like the person to be aware of when discussing a diet topic:
 ---------------------------------------------------------------
-- Evolutionary biology. Have you heard of the expensive tissue hypothesis?
 - Additive nature of certain foods, withdrawal symptoms. How would you distinguish craving for an additive food versus craving for a necessary food?
 - The general dogma/politics in science.
 - That good quality anecdotes are often better that 'studies'.
@@ -33,12 +32,12 @@ Things I would like the person to be aware of when discussing a diet topic:
 - What is the evolutionary advantage for a carnivore over a herbivore, what are the disadvantages. What is the evolutionary advantages of an omnivore.
 - The role of cooking. What foods are best cooked, what may be eaten raw?
 - have you considered, what I call it the allergy/sensitivity. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
-- Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
 - Are you aware of the Inuit paradox, French paradox and the Israeli paradox?
-- How would you perform an experiment to prove that one food is good/bad?
+- How would you design an experiment to prove that one food is good/bad?
 - Evolutionary biology. 
   - Have you heard of the expensive tissue hypothesis?
-  - Domestication of plants
+  - What do you know about domestication of plants for food?
+  - Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
 
 My allergy/sensitivity spectrum, in the order of increasing sensitivity
 -------------------------------------------------------------------------
