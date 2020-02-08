@@ -31,14 +31,13 @@ Things I would like the person to be aware of when discussing a diet topic:
 - Most studies are based on questionnaires.
 - What is the evolutionary advantage for a carnivore over a herbivore, what are the disadvantages. What is the evolutionary advantages of an omnivore.
 - The role of cooking. What foods are best cooked, what may be eaten raw?
-- have you considered, what I call it the allergy/sensitivity. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
 - Are you aware of the Inuit paradox, French paradox and the Israeli paradox?
 - How would you design an experiment to prove that one food is good/bad?
 - Evolutionary biology. 
   - Have you heard of the expensive tissue hypothesis?
   - What do you know about domestication of plants for food?
   - Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
-
+- Have you considered, what I call it the allergy/sensitivity spectrum. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
 My allergy/sensitivity spectrum, in the order of increasing sensitivity
 -------------------------------------------------------------------------
 - Red ruminant meat [least sensitivity]
