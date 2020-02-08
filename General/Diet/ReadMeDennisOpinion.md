@@ -27,7 +27,7 @@ Things I would like the person to be aware of when discussing a diet topic:
 ---------------------------------------------------------------
 - Additive nature of certain foods, withdrawal symptoms. How would you distinguish craving for an additive food versus craving for a necessary food?
 - The general dogma/politics in science.
-- That good quality anecdotes are often better that 'studies'.
+- That good quality anecdotes are often better that 'studies'. Studies in most cases are epidemiological in nature.
 - Most studies are based on questionnaires.
 - What is the evolutionary advantage for a carnivore over a herbivore, what are the disadvantages. What is the evolutionary advantages of an omnivore.
 - The role of cooking. What foods are best cooked, what may be eaten raw?
