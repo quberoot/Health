@@ -2,7 +2,7 @@ Based on all the investigation that I have done so far, it appears the jaw/tongu
 
 The following are starting points for investigation (I have not read/listened to all content)  
 - [Dr Mike Mew](https://youtu.be/D4L0PzprcRI?t=1354)
-
 - [Dr Farrand C Robson](FarrandCRobson/OSB-ARTICLES-Oral-System-Biology-Schwartz-Article-1.pdf)
-
 - [Dr John Mew, changing the shape of the face](https://www.youtube.com/watch?v=Im18jVlhQXw)
+- [Bill Hang website](https://www.youtube.com/watch?v=RfnCnVI8-bY)
+- (Dr Bill Hang's website)[https://facefocused.com]
