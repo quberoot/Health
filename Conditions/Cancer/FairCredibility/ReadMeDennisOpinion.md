@@ -1,7 +1,7 @@
 In my opinion currently. You 3 best bets for treating cancers are the following:
 
-1) [https://www.drlindai.com/](https://www.drlindai.com/) . The best. Also know as the Nicolos Gonzales/Kelly protocol. Advocates various diets ranging from near vegan to carnivore.
-2) [https://www.paleomedicina.com/en](https://www.paleomedicina.com/en) . The second best. Note: I'm fully aware of the Gerson therapy where they advocate a vegan diet. Interestingly Dr Gerson himself had raw calf liver juice along with the vegan diet in his original protocol which has been now discontinued. In my current opinion a vegan diet is never a good long term strategy for anyone. In some cases it can be even lethal to some individuals.
+1) [https://www.drlindai.com/](https://www.drlindai.com/) . The best. Also know as the Nicolos Gonzales/Kelly protocol. Involves taking proteolytic enzymes( dessicated pancreas). Advocates various diets ranging from near vegan to carnivore.
+2) [https://www.paleomedicina.com/en](https://www.paleomedicina.com/en) . The second best. involves a nearly all meat diet. Note: I'm fully aware of the Gerson therapy where they advocate a vegan diet. Interestingly Dr Gerson himself had raw calf liver juice along with the vegan diet in his original protocol which has been now discontinued. In my current opinion a vegan diet is never a good long term strategy for anyone. In some cases it can be even lethal to some individuals.
 3) [https://riordanclinic.org/what-we-do/high-dose-iv-vitamin-c/](https://riordanclinic.org/what-we-do/high-dose-iv-vitamin-c/) This is  used as an adjunct therapy not the main, I suspect because of the legality.
 
 

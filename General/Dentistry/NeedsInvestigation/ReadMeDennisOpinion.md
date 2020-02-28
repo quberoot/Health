@@ -13,3 +13,5 @@ The following are starting points for investigation (I have not read/listened to
 - [Website not maintaned in a long time, but still resonably good stuff.](https://claimingpower.com/)
 - [Palatal Expansion in Adults](https://www.youtube.com/watch?v=QCNqbvOALZI)
 - [Jim Bronson, ALF appliance](https://www.youtube.com/watch?v=sfiRBWpmPEY)
+- [Why Do Some Teeth Shift](https://www.youtube.com/watch?v=LNi-1xEttrI)
+- [Dr. Darick Nordstrom, on ALF](https://www.youtube.com/watch?v=QxnR3BurUdM)
