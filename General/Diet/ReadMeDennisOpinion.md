@@ -13,7 +13,7 @@ Of the people who respond well to the diet, what are the measures of people who 
 As subjective as it may sound (as opposed to concrete well defined figures like cholesterol or sugar levels)) mention the following:
 - How do they feel? Is it any different than when they were not on the diet.
 - Do they sleep better?
-- Do they have better motions? What about GERD, bloating etc. ?
+- Do they digest food better? Do they have better motions? What about GERD, bloating etc. ?
 - Do they have more energy?
 - Do they have more/less visceral fat?
 - Have they gained/lost weight?
@@ -38,6 +38,8 @@ Things I would like the person to be aware of when discussing a diet topic:
   - What do you know about domestication of plants for food?
   - Why do certain foods have toxins in them, eg certain fish, cassava, potato etc.
 - Have you considered, what I call the allergy/sensitivity spectrum of foods. (Note: mainstream considers an allergy to be very different from a sensitivity, but here I have clubbed both together)
+- Digestability of food which not coincidentally follows the allergy/sensitivity spectrum of foods.
+- Common deficiencies caused by vegan foods: protein, Vitamin A, Vitamin B12, Vitamin D3, Vitamin K2, zinc, iron
 
 My allergy/sensitivity spectrum of foods, in the order of increasing sensitivity
 -------------------------------------------------------------------------
