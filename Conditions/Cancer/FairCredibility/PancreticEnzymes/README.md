@@ -30,15 +30,15 @@ An educated guess:
 80% of the patients have an extraordinary success vs say about 10% success of mainstream approach. success can be defined as a good functional quality of life.
 ToDo: put actual numbers
 
-<strong>how long do the positive and side effects take, to show up.</strong>  
+<strong>How long do the positive and side effects take, to show up.</strong>  
 
 
 ToDo:  To be investigated
 
-<strong> have you investigated the critiques of this treatment or drug, is the criticism well found? </strong>  
+<strong>Have you investigated the critiques of this treatment or drug, is the criticism well found? </strong>  
 
 
-critiques often target the coffee enemas and rely on the amusement it generates to dismiss the whole therapy as being quacky. ( Note: I actually check the online version of the Merck manual. Up until the early 70s coffee enemas were part of mainstream medicine - Dennis) They also cite the main stream trail that failed. Dr Nicholas J. Gonzalez  explains why the trial failed in this [book](https://www.amazon.ca/What-Went-Wrong-Clinical-Treatment/dp/0982196539?SubscriptionId=AKIAILSHYYTFIVPWUY6Q&tag=duc12-20&linkCode=xm2&camp=2025&creative=165953&creativeASIN=0982196539) Apparently the trial was incorrectly designed.
+Critiques often target the coffee enemas and rely on the amusement it generates to dismiss the whole therapy as being quacky. ( Note: I actually check the online version of the Merck manual. Up until the early 70s coffee enemas were part of mainstream medicine - Dennis) They also cite the main stream trail that failed. Dr Nicholas J. Gonzalez  explains why the trial failed in this [book](https://www.amazon.ca/What-Went-Wrong-Clinical-Treatment/dp/0982196539?SubscriptionId=AKIAILSHYYTFIVPWUY6Q&tag=duc12-20&linkCode=xm2&camp=2025&creative=165953&creativeASIN=0982196539) Apparently the trial was incorrectly designed and included patient who did not (or could not) comply with the protocol. [Here](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4712871/) is an analysis by Dr Linda Issacs. If the link does not work, a version can be found [here](30-32.pdf)
 
 <strong>History of this therapy/treatment</strong> 
 
