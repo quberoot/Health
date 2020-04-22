@@ -10,4 +10,4 @@ Current there is only one know practitioner:
 
 [Entire series] (https://www.youtube.com/watch?v=bWTHbGu8JSY&list=PL2F898C5972E83D49)  
 
-
+[Talk by Dr. Linda Isaacs](https://vimeo.com/400820159/e460b34d0a)

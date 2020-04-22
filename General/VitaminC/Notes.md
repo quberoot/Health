@@ -4,6 +4,6 @@ Links:
 
 [Thomas Levy](https://www.youtube.com/watch?v=GpptUsJFCEY)
 
-[Thomas Levy: Vitamin C Facts Fiction and Law]https://www.youtube.com/watch?v=xrzs2BIzdvQ
+[Thomas Levy: Vitamin C Facts Fiction and Law, legality](https://www.youtube.com/watch?v=xrzs2BIzdvQ)
 
-[Thomas Levy's weebsite](https://blog.peakenergy.com/)
+[Thomas Levy's website](https://blog.peakenergy.com/)
