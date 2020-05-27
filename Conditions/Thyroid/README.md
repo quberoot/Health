@@ -1,0 +1,1 @@
+Use the following link as a starting point: [https://stopthethyroidmadness.com/](https://stopthethyroidmadness.com/)
