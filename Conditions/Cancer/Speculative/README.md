@@ -1,1 +1,0 @@
-While I have separated  health conditions by their common names, I do recognize that often when you fix one health condition many others resolve on their own. The body is a system of interdependent subsystems, a subsystem generally cannot be treated in isolation.

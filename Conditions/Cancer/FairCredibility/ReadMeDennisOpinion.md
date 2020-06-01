@@ -16,3 +16,6 @@ The approach appears to based on several misplaced beliefs:
 - Earlier detection of a cancer because of better diagnostic methods now means that the survival rate (roughly defined as the person surviving 5 years after he/she has been diagnosed) is artificially extended, which is mis-attributed to the treatment than the earlier detection.
 
 Note: some cancers do respond well to conventional treatments but they are the exceptions. As far as I know they are the lymphomas, ovarian and testicular cancers.
+
+ToDo:
+-Mention Gerson Therapy and realted topics like calf liver juice and their advocacy of veganism.
