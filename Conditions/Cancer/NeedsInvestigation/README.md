@@ -1,1 +1,2 @@
-While I have separated  health conditions by their common names, I do recognize that often when you fix one health condition many others resolve on their own. The body is a system of interdependent subsystems, a subsystem generally cannot be treated in isolation.
+<p>Investigate the claims of Tullio Simoncini who claims that baking soda (Sodium Bicarbonate) can be used to cure most cancers:</p>
+<p><a href="http://www.simoncinicancertherapy.com">http://www.simoncinicancertherapy.com</a></p>
