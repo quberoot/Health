@@ -43,8 +43,8 @@ Critiques often target the coffee enemas and rely on the amusement it generates 
 <strong>History of this therapy/treatment</strong> 
 
 
-- John Beard,An  embryologist : www.alternative-therapies.com/openaccess/athm_18-6_gonzalez.pdf . a copy of this pdf can be found in this folder.
-- Dr Kelly, a dentist. A mention of him can be found [here](https://youtu.be/bWTHbGu8JSY?list=PL2F898C5972E83D49&t=111)  . Kelly's book can be found or [here](http://www.drkelley.com/CANLIVER55.html) or [here](https://htmlpreview.github.io/?https://github.com/Atlantis-City/Health/master/Conditions/Cancer/FairCredibility/PancreticEnzymes/OneAnswerToCancer.htm). It is important to note that Dr Nicholaz Gonzales and Dr Linda Isaacshas refined this protocol.
+- John Beard,An  embryologist : www.alternative-therapies.com/openaccess/athm_18-6_gonzalez.pdf . A copy of this pdf can be found in this folder.
+- Dr Kelly, a dentist. A mention of him can be found [here](https://youtu.be/bWTHbGu8JSY?list=PL2F898C5972E83D49&t=111)  . An interview of Kelly can be found [here] (https://thrive.mattjanes.com/rare-interview-with-dr-william-donald-kelley-one-answer-to-cancer/) Kelly's book can be found or [here](http://www.drkelley.com/CANLIVER55.html) or [here](https://htmlpreview.github.io/?https://github.com/Atlantis-City/Health/master/Conditions/Cancer/FairCredibility/PancreticEnzymes/OneAnswerToCancer.htm). It is important to note that Dr Nicholaz Gonzales and Dr Linda Isaacshas refined this protocol.
 - National cancer institute [failed trail](https://youtu.be/kZ-diONXCZc?list=PL2F898C5972E83D49&t=185)  
 
 <strong>Have you considered placebo.</strong>  
