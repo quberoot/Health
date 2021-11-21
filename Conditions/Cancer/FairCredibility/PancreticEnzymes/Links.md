@@ -1,6 +1,6 @@
 Current there is only one know practitioner:  
 [https://www.drlindai.com/](https://www.drlindai.com/)
-
+[articles published by Dr. Gonzalez and/or Dr. Isaacs in peer-reviewed PubMed listed journals](Gonzalez-Isaacs-Pubmed-Articles.zip)
 <strong>Videos (Not in the correct order):</strong> 
 
 [https://www.youtube.com/watch?v=kZ-diONXCZc](https://www.youtube.com/watch?v=kZ-diONXCZc)  
@@ -15,3 +15,5 @@ Current there is only one know practitioner:
 [Dr. Kelly Interview Part 1](PancreticEnzymes/WilliamDonaldKelleyInterviewPart1.mp4)
 [Dr. Kelly Interview Part 2](PancreticEnzymes/WilliamDonaldKelleyInterviewPart2.mp4)
 [Dr. Kelly Interview Part 3](PancreticEnzymes/WilliamDonaldKelleyInterviewPart3.mp4)
+
+[Article by Dr. Linda Isaacs](https://www.townsendletter.com/article/457-8-metastatic-cancer-enzyme-protocol/)
