@@ -1,8 +1,9 @@
-<p>Ray Peat deserves a special mention because in my opinion he has&nbsp; probably the most nauanced ( and consequently can be difficult to understand) views when it comes to health topics. While all his views have not been verified, I do find that on an average I do come around to accepting his views. It is also easy to sometimes misinterpret what he says. For example he sometime avoids saturated&nbsp; fat not because it's bad in itself but because they tend to accumulate toxins. He actually thinks that saturated fat is protective.</p>
+<p>Ray Peat deserves a special mention because in my opinion he has&nbsp; probably the most nauanced ( and consequently can be difficult to understand) views when it comes to health topics. While all his views have not been verified, I do find that on an average I do come around to accepting his views. It is also easy to sometimes misinterpret what he says. For example he sometime avoids saturated&nbsp; fat not because it's bad in itself but because they tend to accumulate toxins. He actually thinks that saturated fat is protective. <span style="color: #ff0000;">Think twice before you think that the guy is does not know what he is talking about. He</span></p>
 <p><br />Website: <a href="http://raypeat.com/">http://raypeat.com/</a></p>
 <p>Views:</p>
 <ul>
-<li>Poly unsaturated fat ( including fish oil) is one of the worst foods out there.</li>
+<li>Poly unsaturated fat (including fish oil) is one of the worst foods out there.</li>
+<li>Fish oil does have anti-inflammatory properties, but they are generally dangerous.</li>
 <li>Grains ( in general seeds) are probably the next worst culprits when it comes to foods.</li>
 <li>Saturated fat is good and protective.</li>
 <li>He often drinks low fat milk because, the fat in milk can accumulate contaminants, ( not because fat in milk itself is bad)</li>
