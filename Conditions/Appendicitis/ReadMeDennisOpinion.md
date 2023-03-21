@@ -14,5 +14,5 @@ So here goes the treatment plan according to John Henry Tildenon :
 - Once there is bowel movement, start giving warm milk or bone broth. ( my personal recommendation would be to avoid milk for those who are sensitive to milk, the milk that we get has probably changed in a century)
 - a fluid diet as mentioned above should be given for the first week, a light diet for the next 2/3 weeks, and then gradually a normal diet.
 
-A scanned version of the book can be found at:  https://archive.org/details/appendicitisetio00tild or in this folder
-Attached to this portion is a pdf form the above link. Relevant pages are from chapter IX , i.e page 117 onwards. Large portions of the book are dedicated to ( justifiably :) ) ranting against the medical community.
+A scanned version of the book can be found at:  https://archive.org/details/appendicitisetio00tild or in this folder.
+Relevant pages are from chapter IX , i.e page 117 onwards. Large portions of the book are dedicated to ( justifiably :) ) ranting against the medical community.
