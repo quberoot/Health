@@ -16,4 +16,5 @@ The following are starting points for investigation (I have not read/listened to
 - [Why Do Some Teeth Shift](https://www.youtube.com/watch?v=LNi-1xEttrI)
 - [Dr. Darick Nordstrom, on ALF](https://www.youtube.com/watch?v=QxnR3BurUdM)
 - [Dr Mike Mew interview with Bret Weinstein on Dec 12, 2022](https://www.youtube.com/watch?v=JKWyrXda0Z0)
+- [ELLIE PHILLIPS, DDS claims that most cavities can be reversed, though she is also selling her products](https://drellie.com/about-2/)
 
