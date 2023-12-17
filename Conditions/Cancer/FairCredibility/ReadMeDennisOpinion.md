@@ -1,3 +1,5 @@
+Time spent on this subject by me is approximately 30 days ( each day = 8 hrs) over a period of 6 months. Links:
+
 In my opinion, currently your 3 best bets for treating cancers are the following:
 
 1) [https://www.drlindai.com/](https://www.drlindai.com/) . The best. Also know as the Nicolos Gonzales/Kelly protocol. Involves taking proteolytic enzymes (dessicated pancreas). Advocates various diets ranging from near vegan to carnivore.

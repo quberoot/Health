@@ -1,3 +1,5 @@
+Time spent on this subject by me is approximately 500 days (each day = 8 hrs) over a period of 20 years. Approximately 20 days in a year.
+
 Here are key things to be considered when talking or proposiing a diet that you think some people will do well on:
 --------------------------
 - State percentage of people who will respond well to the 'diet' that you are talking about who _do not_ exercise but are fairly not sedentary. This figure need not be some official figure, your best guess is good enough. Tell us how you arrived at this best guess figure. Stating that people are different is not sufficient, you have to come up with some numbers.
