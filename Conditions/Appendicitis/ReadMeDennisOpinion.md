@@ -1,3 +1,7 @@
+- It appears that most cases of appendicitis either resolve on their own or might be resolved by treating with antibiotics.
+
+<p><span style="text-decoration: underline;">The book APPENDICITIS by John Henry Tildenon, MD</span></p>
+
 Important: John Henry Tildenon, was considered to be quack of sorts by his contemporaries, and I would think would be considered a quack even by today's standards, so if you are of the opinion that the medical profession currently does a generally good job, this post of mine can be ignored. This book was probably written in the 1920s.
 
 According to John Henry Tildenon, most cases of appendicitis can be treated without surgery, If his treatment plan is followed. In which case surgery would be an exception, and not the norm.
