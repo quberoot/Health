@@ -1,3 +1,5 @@
+Time spent on this subject by me is approximately 3 days ( each day = 8 hrs) over a period of 3 years.
+
 - It appears that most cases of appendicitis either resolve on their own or might be resolved by treating with antibiotics.
 
 <ins>The book APPENDICITIS by John Henry Tildenon, MD<ins/>
