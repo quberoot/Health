@@ -10,11 +10,12 @@
 <li>Fiber from potatoes is good but it not good when it comes form cereal grains.</li>
 <li>Drinks a lot of orange juice and ice cream.</li>
 <li>emphasis a lot on thyroid function</li>
-<li>Iron deficiency is extremely rare, iron overload is actually more common, iron while important it is toxic in larger doses. Anemia is generally caused by low thyroid function rather than due to low iron.</li>
+<li>Iron deficiency is extremely rare, iron overload is actually more common, iron while important it is toxic in larger doses. Anemia is generally caused by low thyroid function rather than due to low iron. Corrborating views about iron can be found <a href"https://www.youtube.com/watch?v=vYvXJRTlut4">here </a></li>
 <li>Aspirin is one of the best medications out there for cancer.<br />Sugar can be therapeutic in small quantities. Early treatments of diabetes involved giving patient large quantities of sugar.</li>
 <li>Salt is also very therapeutic.</li>
 <li>As many as 15 plus nutritional substances have insulin-like properties.</li>
 <li>He is not keen on exercise, and does not exercise himself.</li>
 <li>Simoncini a physian who treats cancer patients with baking soda has been mentioned by Ray Peat in a postive light. http://www.simoncinicancertherapy.com</li>
 </ul>
+
 <p>&nbsp;</p>
